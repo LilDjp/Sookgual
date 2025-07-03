@@ -1,1 +1,3 @@
-# Sookgual
+# Sookgual this file is only for entertainment please do not proceed to copy it and if copied th code or anything we will pull a big heafty law suit and we are lincened under the super vision of Lawyers and supervisors so any copy found of this and we will pull a 750k grand sue againts you Thank you
+
+--rules:We will respect your privacny and we do not track down anything about what you do we do noy check your history or even search engines we give you a 100% privacy garnteed and 95% protection againts harmfull websites we will amke sure anything needed will be offerd to you and everything youneed will be on search bar 
